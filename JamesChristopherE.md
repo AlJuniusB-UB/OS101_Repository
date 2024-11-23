@@ -1,1 +1,1 @@
-"Hello po, si Zed po ito. :D"
+"What I have done... cannot be undone."
